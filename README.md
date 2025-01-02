@@ -1,5 +1,5 @@
 -👋 Hi, I’m SAKTHIVEL
-- 👀 I’m interested in DATA
+- 👀 I’m interested in DATA Proffestional
 - 🌱 I’m currently learning DATA ANALYST
 - 💞️ I’m Single
 - 📫 How to reach me www.linkedin.com/in/sakthivel-rajan-0316bb257, instagram id @livinC00l
